@@ -1,0 +1,7 @@
+- Hi, I’m xen
+- I’m interested in stuff
+- I’m currently learning digital art.
+- I’m looking to collaborate on helping people in a way.
+- Reach out to me on discord: trflarco
+- Pronouns: he/they him/them idc which yall use.
+- Fun fact: i do bowling for a living.
